@@ -3,7 +3,7 @@
 
 **"Securing the Digital World, One Byte at a Time."** 👾🔍🛡️  
 
-### 📍 Hyderabad, TS | 📧 [hyde.celestia8@gmail.com](mailto:hyde.celestia8@gmail.com) | 🔗 [LinkedIn](http://www.linkedin.com/in/hyde-celestia-tandra-422b56240)  
+### 📍 Hyderabad, TS | 📧 [hyde.celestia8@gmail.com](mailto:hyde.celestia8@gmail.com) | 🔗 [LinkedIn](http://www.linkedin.com/in/hyde-celestia-tandra-422b56240)  | 🔗 [Resume](CV.pdf) 
 
 ---
 

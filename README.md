@@ -1,5 +1,5 @@
 ## 🔐 **Hyde Celestia Tandra** – Cybersecurity Analyst  
-![Cybersecurity Banner](https://source.unsplash.com/1600x400/?cybersecurity,hacking,technology)
+![Cybersecurity Banner](banner.png)
 
 **"Securing the Digital World, One Byte at a Time."** 👾🔍🛡️  
 

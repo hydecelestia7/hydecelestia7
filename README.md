@@ -68,10 +68,6 @@ My mission? **To outsmart cyber threats and fortify digital landscapes.** 🔒�
 
 ---
 
-## 📊 **GitHub Stats & Contributions**  
-<p> <img align="center" src='https://github-readme-stats.vercel.app/api?username=hydecelestia7&show_icons=true'/>
-
----
 
 ## 📡 **Let's Connect!**  
 💌 Feel free to reach out for **collaborations, security projects, or knowledge sharing.** Let’s make the digital world **safer together**! 🚀🔐  
